@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @TaniaLea
 - 👀 I’m interested in all things Bitcoin and Nostr
-- 🌱 Let´s cultivate knowledge without losing imagination 
+- 🌱 Let´s cultivate our knowledge and imagination 
 - 💞️ Let me know if you want to collaborate on @IntentionAlliance 
 - 📫 You can reach out to me via LinkedIn or Twitter, links in my bio
 - 😄 Feeling happy
